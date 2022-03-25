@@ -1,0 +1,2 @@
+# Kanye
+ Random Kanye Quotes 
